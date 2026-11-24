@@ -8,7 +8,7 @@ Interested in learning C# and Java 🖥️
 
 My favorite OS is Windows (11,8.1,Vista) ⭐🪟
 
-Goals: Finding Fortnite Pirate Token, finish university, learn to program.
+Goals: Finding Fortnite Pirate Token, finish university, learn coding.
 
 Hater #1 Linux and Unix 😠
 
